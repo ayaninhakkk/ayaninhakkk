@@ -1,4 +1,4 @@
-## Hi there 👋
+amo o orochi, sorriso maroto, cabelinho e caju pra baixo 
 
 <!--
 **ayaninhakkk/ayaninhakkk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
